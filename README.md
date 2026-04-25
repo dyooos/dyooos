@@ -1,4 +1,4 @@
-𓎢𓎡  ⑅⠀ ︵ pfp creds to hatmanthefish on tumblr◞◟ 𓏲𝄢
+𓎢𓎡  ⑅⠀ ︵ pfp made by me (my sona) ◞◟ 𓏲𝄢
  ྀི  𓏼♡⃝ ◟⠀ #bunkitpuptrio⠀𓂂⠀#applebunduo⠀𝜗౿｡⠀𓏫◞ ᩙ
 <img width="1000" height="150" alt="17771267142447805393305826020044" src="https://github.com/user-attachments/assets/d6ad7524-9f35-4bfc-a75b-ee76ecd4b614" />
 𐔌 ◟ 𓏼⑅ ̣̣ minor⠀⸝⸝⠀artist ◞ ྀི◟ ͜ ◞ ྀི
