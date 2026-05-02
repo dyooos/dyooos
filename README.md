@@ -5,7 +5,7 @@
   Ⳋ𓏼˚⠀𓏲𝄢 035 kin 𓎢𓎟𓎡｡ 𓉳 𓏫ᘚ
 ┣▇▇═─◞⠀⑅ 𐂯◞། ׁ 𓈒
 <img width="1000" height="250" alt="17771271126487525188885110703078" src="https://github.com/user-attachments/assets/332b160c-eab1-4760-946f-89d3fcb4fd14" />
-𐄙 ꠆𓈒. ݂ .𓈒  ꠆𐄙۶ৎ #treecutterduo ⸝⸝⠀#madnessduo ༏ིྀ ౿
+𐄙 ꠆𓈒. ݂ .𓈒  ꠆𐄙۶ৎ #butterflyshotgunduo ⸝⸝⠀#madnessduo ༏ིྀ ౿
 ◟𐔌⠀𓐇⠀#lifeiseoblox ᘚ ݂ 
 ᕱ ⑅ ᕱ⠀" these words don't mean nothing once they've left my lips. " /lyr  𓏼꒱
 
