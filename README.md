@@ -11,3 +11,5 @@
 **ambrose**ㅤㅤaka dyo or sageㅤㅤ*she/any*
 **minor** ㅤ*infp 9w1*ㅤㅤ**anxiety** possibly bipolar
 omnifem **abro** *tomboy*
+
+*( this looks better on mobile! )*
