@@ -9,5 +9,5 @@
 [![tumblr-77ead84af42b5fab8a049c5ef5650ab6-623a83d0-2048.png](https://i.postimg.cc/QVGKSQgY/tumblr-77ead84af42b5fab8a049c5ef5650ab6-623a83d0-2048.png)](https://postimg.cc/T50P3W4n)
 
 **ambrose**ㅤㅤaka dyo or sageㅤㅤ*she/any*
-**minor** ㅤ*infp 9w1*ㅤㅤ**anxiety** possibly bipolarㅤ
-ㅤㅤㅤomnifem **abro** *tomboy*
+**minor** ㅤ*infp 9w1*ㅤㅤ**anxiety** possibly bipolar
+omnifem **abro** *tomboy*
